@@ -56,6 +56,7 @@ Steam Community Rules and Guidelines. This screenshot is now only visible to you
 you will be unable to upload new user generated content on Steam until 9 Nov @ 2:00am. 
 *Please note that if any further content that you've uploaded is banned before this ban expires
 the ban will be extended.
+
 12:48 - Sputnik: Fucking faggot dude
 ---------------------------------------------------------------------------------------------------------------
 23:00 - Sputnik: sorry, cant upload ur shitty pics cuz this fuckwad called: "Windows" 
