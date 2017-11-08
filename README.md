@@ -28,7 +28,6 @@
 00:29 - Sputnik: u going to be offensive?
 ---------------------------------------------------------------------------------------------------------------
 23:44 - Trulle: bye fucking jew licker
-23:44 - Sputnik: ;)
 23:44 - Sputnik: ;(
 23:44 - Sputnik: wat
 23:45 - Sputnik: cant sleep now
@@ -49,18 +48,12 @@
 ---------------------------------------------------------------------------------------------------------------
 14:51 - Sputnik: there is a jew heading for u
 ---------------------------------------------------------------------------------------------------------------
-12:47 - Sputnik: Hello Sputnik,  A Steam screenshot you uploaded has been banned for violating the 
-Steam Community Rules and Guidelines. 
-This screenshot is now only visible to you. 
+12:47 - Sputnik: Hello Sputnik, A Steam screenshot you uploaded has been banned for violating the 
+Steam Community Rules and Guidelines. This screenshot is now only visible to you. 
 Due to this ban you will be unable to upload new user generated content on Steam until 9 Nov @ 2:00am. 
-*Please note that if any further content that you've uploaded 
-is banned before this ban expires the ban will be extended.
+*Please note that if any further content that you've uploaded is banned before this ban expires the ban will be extended.
 ‍    
 12:48 - Sputnik: Fucking faggot dude
----------------------------------------------------------------------------------------------------------------
-23:00 - Sputnik: sorry, cant upload ur shitty pics cuz this fuckwad called: "Windows" 
-reported ur old shitty gay pics for hardcore gay porn content, wait till tommorow k? 
-maby then it works again - steam helpdesk
 ---------------------------------------------------------------------------------------------------------------
 23:09 - Sputnik: niggers compliment themselves all the thing, thinking they got bitches and monkey but those 
 are just hired or will be confiscated by the police a few days/weeks later
