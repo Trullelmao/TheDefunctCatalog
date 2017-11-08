@@ -1,4 +1,3 @@
----------!!SPUTNIK CATALOG!!---------
 22:09 - Sputnik: thats bullshit fgt
 22:09 - Trulle: even black people picking cotton like they should HAIL HITLER
 22:09 - Trulle: xdxdxdxd
