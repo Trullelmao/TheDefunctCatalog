@@ -44,7 +44,6 @@
 12:51 - Sputnik: Niggers do that
 12:52 - Sputnik: Sand niggers even worse
 12:52 - Sputnik: Tf u doing now?
-13:19 - Sputnik is now Online.
 13:20 - Sputnik: Nigga nigga bitch nigga nigga
 13:20 - Sputnik: Nigga fat chicken nigga watermelon nigga
 13:20 - Sputnik: Bitch nigga... nigga, white women, titties, ass.
@@ -52,11 +51,12 @@
 14:51 - Sputnik: there is a jew heading for u
 ---------------------------------------------------------------------------------------------------------------
 12:47 - Sputnik: Hello Sputnik,  A Steam screenshot you uploaded has been banned for violating the 
-Steam Community Rules and Guidelines. This screenshot is now only visible to you. Due to this ban
-you will be unable to upload new user generated content on Steam until 9 Nov @ 2:00am. 
-*Please note that if any further content that you've uploaded is banned before this ban expires
-the ban will be extended.
-
+Steam Community Rules and Guidelines. 
+This screenshot is now only visible to you. 
+Due to this ban you will be unable to upload new user generated content on Steam until 9 Nov @ 2:00am. 
+*Please note that if any further content that you've uploaded 
+is banned before this ban expires the ban will be extended.
+‍    
 12:48 - Sputnik: Fucking faggot dude
 ---------------------------------------------------------------------------------------------------------------
 23:00 - Sputnik: sorry, cant upload ur shitty pics cuz this fuckwad called: "Windows" 
