@@ -39,7 +39,6 @@
 23:45 - Sputnik: so mean
 23:45 - Sputnik: ima call social security
 ---------------------------------------------------------------------------------------------------------------
-12:51 - Sputnik is now Online.
 12:51 - Sputnik: Making insults behind my back
 12:51 - Sputnik: Niggers do that
 12:52 - Sputnik: Sand niggers even worse
