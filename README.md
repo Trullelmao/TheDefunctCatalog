@@ -1,3 +1,15 @@
+16:03 - Sputnik: ok
+16:04 - Windows: sputnik's classic nigger reply
+16:04 - Windows: im gonna make something out of that.
+16:04 - Sputnik: how r u gonna do that
+---------------------------------------------------------------------------------------------------------------
+01:25 - Sputnik: think ima watch tv
+01:25 - Windows: TV
+01:25 - Windows: 1:25am
+01:25 - Sputnik: yes
+01:25 - Sputnik: u know whats on tv on 1:25
+01:25 - Windows: XDDDDDD
+---------------------------------------------------------------------------------------------------------------
 22:09 - Sputnik: thats bullshit fgt
 22:09 - Trulle: even black people picking cotton like they should HAIL HITLER
 22:09 - Trulle: xdxdxdxd
