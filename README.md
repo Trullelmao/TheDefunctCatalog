@@ -1,3 +1,5 @@
+Last updated 2017-11-09!
+---------------------------------------------------------------------------------------------------------------
 16:03 - Sputnik: ok
 16:04 - Windows: sputnik's classic nigger reply
 16:04 - Windows: im gonna make something out of that.
