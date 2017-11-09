@@ -69,7 +69,7 @@ Due to this ban you will be unable to upload new user generated content on Steam
 ---------------------------------------------------------------------------------------------------------------
 23:09 - Sputnik: niggers compliment themselves all the thing, thinking they got bitches and monkey but those 
 are just hired or will be confiscated by the police a few days/weeks later
----------------------------------------------------------------------------------------------------------------
-‍    
+
+
 
 
