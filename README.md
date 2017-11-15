@@ -1,4 +1,4 @@
-Last updated 2017-11-10
+Last updated 2017-11-16
 ---------------------------------------------------------------------------------------------------------------
 16:03 - Sputnik: ok
 16:04 - Windows: sputnik's classic nigger reply
@@ -73,6 +73,15 @@ Due to this ban you will be unable to upload new user generated content on Steam
 are just hired or will be confiscated by the police a few days/weeks later
 ---------------------------------------------------------------------------------------------------------------
 22:36 - Sputnik: dont have to curse at me fucking jew, ur the one being slow as an overheat cacao bean picking nigger
+---------------------------------------------------------------------------------------------------------------
+00:38 - Windows: nvm
+00:38 - Windows: fucking got you that time
+00:38 - Sputnik: U cant do this.
+00:38 - Windows: HAHA
+00:39 - Windows: catalog
+00:39 - Sputnik: Jumpscare me, then nvm me
+00:39 - Sputnik: Too much
+
 
 
 
