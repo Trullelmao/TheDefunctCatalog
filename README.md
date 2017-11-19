@@ -81,7 +81,8 @@ are just hired or will be confiscated by the police a few days/weeks later
 00:39 - Windows: catalog
 00:39 - Sputnik: Jumpscare me, then nvm me
 00:39 - Sputnik: Too much
-
+---------------------------------------------------------------------------------------------------------------
+00:56 - Sputnik: Nigga nigga bitch nigga nigga, nigga fat chicken nigga watermelon nigga, bitch nigga.. nigga white women titties ass.
 
 
 
