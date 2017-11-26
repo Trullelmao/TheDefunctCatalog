@@ -87,5 +87,8 @@ are just hired or will be confiscated by the police a few days/weeks later
 02:57 - Sputnik: BYE
 02:57 - Sputnik: fucking respond
 02:58 - Sputnik: u fucking tryin to put ur balls in ur ass or something
-
+---------------------------------------------------------------------------------------------------------------
+02:35 - Sputnik: nigga trying to kick old white guy
+02:36 - Sputnik: go check whos sittin in da pool
+02:36 - Sputnik: of period cum
 
