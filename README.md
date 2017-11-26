@@ -83,6 +83,9 @@ are just hired or will be confiscated by the police a few days/weeks later
 00:39 - Sputnik: Too much
 ---------------------------------------------------------------------------------------------------------------
 00:56 - Sputnik: Nigga nigga bitch nigga nigga, nigga fat chicken nigga watermelon nigga, bitch nigga.. nigga white women titties ass.
-
+---------------------------------------------------------------------------------------------------------------
+02:57 - Sputnik: BYE
+02:57 - Sputnik: fucking respond
+02:58 - Sputnik: u fucking tryin to put ur balls in ur ass or something
 
 
