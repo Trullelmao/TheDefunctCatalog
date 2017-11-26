@@ -93,3 +93,9 @@ are just hired or will be confiscated by the police a few days/weeks later
 02:36 - Sputnik: of period cum
 ---------------------------------------------------------------------------------------------------------------
 02:55 - Sputnik: trying to make a conversation but that fucking cock bulges out
+---------------------------------------------------------------------------------------------------------------
+15:25 - Sputnik: i aint no fucking weeb u hear
+15:25 - Sputnik: anime is cancer
+15:25 - Sputnik: the word cringe originated from it im pretty sure
+15:27 - Sputnik: somalian banana tree climber
+15:27 - Sputnik: getting horny on banana spiders
