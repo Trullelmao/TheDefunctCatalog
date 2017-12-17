@@ -99,3 +99,15 @@ are just hired or will be confiscated by the police a few days/weeks later
 15:25 - Sputnik: the word cringe originated from it im pretty sure
 15:27 - Sputnik: somalian banana tree climber
 15:27 - Sputnik: getting horny on banana spiders
+---------------------------------------------------------------------------------------------------------------
+19:14 - Sputnik: i think its spoelled like that
+---------------------------------------------------------------------------------------------------------------
+19:15 - Sputnik: m
+19:15 - Sputnik: mu
+19:15 - Sputnik: mug
+19:15 - Sputnik: mugg
+19:15 - Sputnik: mugge
+19:15 - Sputnik: mugget
+19:15 - Sputnik: mugget!
+
+
