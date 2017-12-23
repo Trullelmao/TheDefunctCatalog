@@ -109,5 +109,8 @@ are just hired or will be confiscated by the police a few days/weeks later
 19:15 - Sputnik: mugge
 19:15 - Sputnik: mugget
 19:15 - Sputnik: mugget!
+---------------------------------------------------------------------------------------------------------------
+14:32 - Sputnik: Ill look qt it when i have the time alrigt i have a very busy schedule
+if u would like to contact me anyways incase of emergency, dial: g0 fuc ur s3lf
 
 
