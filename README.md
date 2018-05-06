@@ -77,8 +77,6 @@ are just hired or will be confiscated by the police a few days/weeks later
 00:38 - Windows: nvm
 00:38 - Windows: fucking got you that time
 00:38 - Sputnik: U cant do this.
-00:38 - Windows: HAHA
-00:39 - Windows: catalog
 00:39 - Sputnik: Jumpscare me, then nvm me
 00:39 - Sputnik: Too much
 ---------------------------------------------------------------------------------------------------------------
@@ -101,14 +99,6 @@ are just hired or will be confiscated by the police a few days/weeks later
 15:27 - Sputnik: getting horny on banana spiders
 ---------------------------------------------------------------------------------------------------------------
 19:14 - Sputnik: i think its spoelled like that
----------------------------------------------------------------------------------------------------------------
-19:15 - Sputnik: m
-19:15 - Sputnik: mu
-19:15 - Sputnik: mug
-19:15 - Sputnik: mugg
-19:15 - Sputnik: mugge
-19:15 - Sputnik: mugget
-19:15 - Sputnik: mugget!
 ---------------------------------------------------------------------------------------------------------------
 14:32 - Sputnik: Ill look qt it when i have the time alrigt i have a very busy schedule
 if u would like to contact me anyways incase of emergency, dial: g0 fuc ur s3lf
