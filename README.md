@@ -1,4 +1,4 @@
-Last updated 2017-11-26
+Last updated 2018-05-06
 ---------------------------------------------------------------------------------------------------------------
 16:03 - Sputnik: ok
 16:04 - Windows: sputnik's classic nigger reply
@@ -112,5 +112,6 @@ are just hired or will be confiscated by the police a few days/weeks later
 ---------------------------------------------------------------------------------------------------------------
 14:32 - Sputnik: Ill look qt it when i have the time alrigt i have a very busy schedule
 if u would like to contact me anyways incase of emergency, dial: g0 fuc ur s3lf
-
+---------------------------------------------------------------------------------------------------------------
+21:42 - Sputnik: yea be patient fucking cacner patient
 
