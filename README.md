@@ -106,4 +106,6 @@ if u would like to contact me anyways incase of emergency, dial: g0 fuc ur s3lf
 21:42 - Sputnik: yea be patient fucking cacner patient
 ---------------------------------------------------------------------------------------------------------------
 *DEAD* Sputnik: die in a goat raping desert fucking idiot
-
+---------------------------------------------------------------------------------------------------------------
+Was bo hot? - asking if a man was hot
+---------------------------------------------------------------------------------------------------------------
