@@ -112,3 +112,7 @@ Was bo hot? - asking if a man was hot
 Sputnik - Today at 11:11 PM
 gonna put my dick between the ventilator now cuz of massive irritant
 ---------------------------------------------------------------------------------------------------------------
+Sputnik - Today at 11:05 AM
+Ahitty school with rabbet school mates
+Gonna conquer the restroom
+---------------------------------------------------------------------------------------------------------------
