@@ -125,3 +125,6 @@ Shut up or i report ur jewish mom to the gustappo
 Sputnik - Today at 8:06 PM
 Meatloaf in ur fokin ass m9
 ---------------------------------------------------------------------------------------------------------------
+Sputnik: putting arm into ass till shoiulder hmmm
+---------------------------------------------------------------------------------------------------------------
+
