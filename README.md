@@ -127,4 +127,12 @@ Meatloaf in ur fokin ass m9
 ---------------------------------------------------------------------------------------------------------------
 Sputnik: putting arm into ass till shoiulder hmmm
 ---------------------------------------------------------------------------------------------------------------
+Sputnik: u a scrubby fag mop u gon fokin mokk me nou? ey?
+---------------------------------------------------------------------------------------------------------------
+Sputnik: bye gay ass hole licker
+Sputnik: ceric dickory
+Sputnik: steal the ronald mcdonald funding pot at mcdonalds like a scrubby jew
+Sputnik: grab the pennies boii
+---------------------------------------------------------------------------------------------------------------
+
 
