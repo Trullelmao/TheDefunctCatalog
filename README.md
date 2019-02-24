@@ -134,5 +134,6 @@ Sputnik: ceric dickory
 Sputnik: steal the ronald mcdonald funding pot at mcdonalds like a scrubby jew
 Sputnik: grab the pennies boii
 ---------------------------------------------------------------------------------------------------------------
-
+Sputnik: anus is bulge
+---------------------------------------------------------------------------------------------------------------
 
