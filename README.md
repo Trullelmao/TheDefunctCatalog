@@ -116,9 +116,6 @@ Sputnik - Today at 11:05 AM
 Ahitty school with rabbet school mates
 Gonna conquer the restroom
 ---------------------------------------------------------------------------------------------------------------
-Sputnik - Today at 9:56 PM
-Ur mom
----------------------------------------------------------------------------------------------------------------
 Sputnik - Today at 11:18 PM
 Shut up or i report ur jewish mom to the gustappo
 ---------------------------------------------------------------------------------------------------------------
@@ -136,4 +133,11 @@ Sputnik: grab the pennies boii
 ---------------------------------------------------------------------------------------------------------------
 Sputnik: anus is bulge
 ---------------------------------------------------------------------------------------------------------------
-
+Sputnik: Hot moms seek to find your presence, visit now!
+Sputnik: Black orphan incest abominations seek to find your presence, visit now!
+---------------------------------------------------------------------------------------------------------------
+Sputnik: MomDicks.com?
+Sputnik: ok
+Sputnik: MassiveDicksies.swe
+Sputnik: HAHAHJAHAH
+---------------------------------------------------------------------------------------------------------------
