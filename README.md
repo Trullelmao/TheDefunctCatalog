@@ -141,3 +141,8 @@ Sputnik: ok
 Sputnik: MassiveDicksies.swe
 Sputnik: HAHAHJAHAH
 ---------------------------------------------------------------------------------------------------------------
+Sputnik: Who tf dhits sideways
+Sputnik: Fokin
+Sputnik: Out of alignment anus
+Sputnik: Legit shit on righr side of toilet
+---------------------------------------------------------------------------------------------------------------
