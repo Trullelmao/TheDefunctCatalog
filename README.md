@@ -150,3 +150,6 @@ Sputnik: It truly is an enjoyment
 ---------------------------------------------------------------------------------------------------------------
 Sputnik: u got the poppen and het dansen again u makkert
 ---------------------------------------------------------------------------------------------------------------
+Sputnik: seexxx bex pex pex pex
+Sputnik: dex the kex max fex the sex anime hentai barbeque apax bex bex
+---------------------------------------------------------------------------------------------------------------
