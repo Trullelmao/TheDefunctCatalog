@@ -153,3 +153,5 @@ Sputnik: u got the poppen and het dansen again u makkert
 Sputnik: seexxx bex pex pex pex
 Sputnik: dex the kex max fex the sex anime hentai barbeque apax bex bex
 ---------------------------------------------------------------------------------------------------------------
+Sputnik: legit that fagoot sends everything to u dousnt he where is my privacy with my boyfriend
+---------------------------------------------------------------------------------------------------------------
