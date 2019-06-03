@@ -161,3 +161,7 @@ Sputnik: En me laughing af
 Sputnik: Sweating af
 Sputnik: Cardiac arrest i get from this foggertry
 ---------------------------------------------------------------------------------------------------------------
+Sputnik: Your moms dildo that u put into ur own ass whilst jacking off to furry loli
+---------------------------------------------------------------------------------------------------------------
+Sputnik: Dousnt add up ur british mongoloid bastard child
+---------------------------------------------------------------------------------------------------------------
