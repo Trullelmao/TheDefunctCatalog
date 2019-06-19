@@ -1,4 +1,4 @@
-Last updated 2019-06-03
+Last updated 2019-06-19
 --------------------------------------------------------------------------------------------------------------
 Sputnik: ok
 Windows: sputnik's classic nigger reply
@@ -165,3 +165,11 @@ Sputnik: Your moms dildo that u put into ur own ass whilst jacking off to furry 
 ---------------------------------------------------------------------------------------------------------------
 Sputnik: Dousnt add up ur british mongoloid bastard child
 ---------------------------------------------------------------------------------------------------------------
+Sputnik: I mean the fan
+Sputnik: And reveil unrelenting force of wind upon thy faul Bomination of niggeristan from afrigay
+Sputnik: Kanker kut aap modquito de kanker
+Sputnik: Just gonna aim the fan at me af and then it cant land or fly into my ear and smack the shit ouf of myself
+Sputnik: With the kanker boggart
+Sputnik: Superiour irritant
+---------------------------------------------------------------------------------------------------------------
+
