@@ -175,5 +175,5 @@ Sputnik: Superiour irritant
 Sputnik: loli is good
 Sputnik: u fucking pineapple anal addict
 ---------------------------------------------------------------------------------------------------------------
-Kanker autistic il be in the morninf forgettinf u open
+Sputnik: Kanker autistic il be in the morninf forgettinf u open
 ---------------------------------------------------------------------------------------------------------------
