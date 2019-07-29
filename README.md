@@ -1,4 +1,4 @@
-Last updated 2019-06-28
+Last updated 2019-07-29
 --------------------------------------------------------------------------------------------------------------
 Sputnik: ok
 Windows: sputnik's classic nigger reply
@@ -177,3 +177,12 @@ Sputnik: u fucking pineapple anal addict
 ---------------------------------------------------------------------------------------------------------------
 Sputnik: Kanker autistic il be in the morninf forgettinf u open
 ---------------------------------------------------------------------------------------------------------------
+Sputnik: With ur fucking apple
+Sputnik: Shove it up ur dickhoke
+Sputnik: Fucking cancee kid go suck on ur fortnite game
+Sputnik: disc
+Sputnik: With ur half mongoloid gace
+Sputnik: Face
+Sputnik: Mixes with gay
+---------------------------------------------------------------------------------------------------------------
+
