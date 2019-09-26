@@ -1,5 +1,10 @@
-Last updated 2019-07-29
---------------------------------------------------------------------------------------------------------------
+Last updated 2019-09-27
+
+>2019-09-27: just donated to mf ice poseidon feelsweirdman
+
+
+#CATALOG STARTS BELOW!
+===============================================================================================================
 Sputnik: ok
 Windows: sputnik's classic nigger reply
 Windows: im gonna make something out of that.
@@ -185,4 +190,30 @@ Sputnik: With ur half mongoloid gace
 Sputnik: Face
 Sputnik: Mixes with gay
 ---------------------------------------------------------------------------------------------------------------
-
+Sputnik: Hemmoriage the skull pan
+---------------------------------------------------------------------------------------------------------------
+Sputnik: mokking af
+Sputnik: !!!!
+Sputnik: gonna scrub ur boggus if u dont stop u fucking nigglock
+---------------------------------------------------------------------------------------------------------------
+Sputnik: bog
+Sputnik: gogg
+Sputnik: bogga gogg
+Sputnik: pogg haobus
+Sputnik: bobbus
+Sputnik: gonna BOB ur fucking asshol
+Sputnik: and squirt ur nigger tits into the babies mouth
+Sputnik: gonna rape ur hog
+Sputnik: the hog has pointy nigg sticks on his back to protect his bag of gold coins from pecky jews
+Sputnik: and to mokk his mom how rich the hogg is
+Sputnik: the hog has the bag of the gold
+Sputnik: the gold is jewish wienery
+Sputnik: and that is the big mystery
+Sputnik: why did jews get such a thirst for gold, and gold plated items
+Sputnik: thats what you 'll learn, in the next episode of, sputnik and the rabbet mongaloid facts of the 21st century
+Sputnik: scuffart the rag
+---------------------------------------------------------------------------------------------------------------
+Sputnik: Its PINDIS u jaggin box of made in ching chong cunt trumblers
+---------------------------------------------------------------------------------------------------------------
+Sputnik: need to wank my bed rim
+---------------------------------------------------------------------------------------------------------------
