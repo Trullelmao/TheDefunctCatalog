@@ -1,4 +1,4 @@
-Last updated 2019-09-27
+Last updated 2020-02-12
 
 >2019-09-27: just donated to mf ice poseidon feelsweirdman
 
@@ -216,4 +216,15 @@ Sputnik: scuffart the rag
 Sputnik: Its PINDIS u jaggin box of made in ching chong cunt trumblers
 ---------------------------------------------------------------------------------------------------------------
 Sputnik: need to wank my bed rim
+---------------------------------------------------------------------------------------------------------------
+Sputnik: the hog has pointy nigg sticks on his back to protect his bag of gold coins from pecky jews
+Sputnik: and to mokk his mom how rich the hogg is
+Sputnik: the hog has the bag of the gold
+Sputnik: the gold is jewish wienery
+Sputnik: thats what you 'll learn, in the next episode of, sputnik and the rabbet mongaloid facts of the 21st century
+Sputnik: scuffart the rag
+---------------------------------------------------------------------------------------------------------------
+Sputnik: He wants anime-like
+Sputnik: Square go like
+Sputnik: Finger young children with anime imprinted pencils
 ---------------------------------------------------------------------------------------------------------------
