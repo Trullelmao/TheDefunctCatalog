@@ -1,4 +1,4 @@
-Last updated 2020-02-12
+Last updated 2020-03-08
 
 >2019-09-27: just donated to mf ice poseidon feelsweirdman
 
@@ -227,4 +227,6 @@ Sputnik: scuffart the rag
 Sputnik: He wants anime-like
 Sputnik: Square go like
 Sputnik: Finger young children with anime imprinted pencils
+---------------------------------------------------------------------------------------------------------------
+Sputnik: your fucjing dad is in tghere fuckn o i caint jin fucking malding bald banan pciking longhorn impalement i get
 ---------------------------------------------------------------------------------------------------------------
