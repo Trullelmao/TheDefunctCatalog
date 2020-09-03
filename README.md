@@ -1,7 +1,5 @@
-Last updated 2020-06-30
 
->2019-09-27: just donated to mf ice poseidon feelsweirdman
-
+Last updated 2020-09-03
 
 #CATALOG STARTS BELOW!
 ===============================================================================================================
@@ -239,4 +237,8 @@ Sputnik: I dispense aryan wisdom at an irregular interval
 Sputnik: fuc ku laughin at homy
 ---------------------------------------------------------------------------------------------------------------
 Sputnik: Gonna pressurize ny bennis between the plastic lid and the ceramic sewer connector
+---------------------------------------------------------------------------------------------------------------
+Sputnik: Ye ye
+Sputnik: Rabbid hog u are
+Sputnik: Dads sex equipment totalled my moms car
 ---------------------------------------------------------------------------------------------------------------
